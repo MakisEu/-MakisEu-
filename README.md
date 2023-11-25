@@ -1,2 +1,2 @@
-# -MakisEu-
-### :fire: My Stats :
+
+### :fire:
